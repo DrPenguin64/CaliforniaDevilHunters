@@ -4,6 +4,7 @@
  DemonsOfCalifornia, CaliforniaDemon
 
  maybe in this california people speak french (it is a bit like canada)
+ or in a country with more interesting architecture?
 
  ## Overview
  2 main campaigns: 1 where you play as the apprentice and the demon he has made  a contact with to protect in exchange for its servitude,
@@ -26,4 +27,14 @@
 
 the boy is simply referred to by his last name and as "the magician"
 
-alt title: 
+
+
+themes: 
+alienation, isolationa and loneliness, dangers of lack of connection, racism
+maybe in the bad ending, they think the magician IS  a demon and they kill him (in a sense, he is, by the contract, he is a special kind of host that maintains control)
+given this, maybe only the angel should be playable
+the angels have purple eyes, all of the demons have yellow eyes, neither can blink
+for the angel, you get money after each level you can use to upgrade your weapons
+for the apprentice/demon, you get more and more magical powers
+
+this would probably make for a good comic. maybe I could make a prologue comic and publish that onilne?
