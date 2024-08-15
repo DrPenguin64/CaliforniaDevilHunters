@@ -40,3 +40,5 @@ for the apprentice/demon, you get more and more magical powers
 this would probably make for a good comic. maybe I could make a prologue comic and publish that onilne?
 
 maybe in the end the soldier turns out to have a human component? and they use that to absorb the demon
+
+multiple endings... 
