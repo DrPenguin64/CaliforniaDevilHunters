@@ -26,7 +26,7 @@
  there are 4 playable characters: boy, his demon, the demon hunter demon, and the angel demon hunter.
 
 the boy is simply referred to by his last name and as "the magician"
-
+ gameplay is like 3d platformers + bayo
 
 
 themes: 
