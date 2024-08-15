@@ -42,3 +42,5 @@ this would probably make for a good comic. maybe I could make a prologue comic a
 maybe in the end the soldier turns out to have a human component? and they use that to absorb the demon
 
 multiple endings... 
+i guess I need to ssk myself: what is this really about?
+
