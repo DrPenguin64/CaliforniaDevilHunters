@@ -1,6 +1,7 @@
 # CaliforniaDevilHunters
  An action game and book.
 
+idk lol
  DemonsOfCalifornia, CaliforniaDemon
 
  maybe in this california people speak french (it is a bit like canada)
