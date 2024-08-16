@@ -1,5 +1,5 @@
 # CaliforniaDevilHunters
- An action game and book
+ An action game and book.
 
  DemonsOfCalifornia, CaliforniaDemon
 
