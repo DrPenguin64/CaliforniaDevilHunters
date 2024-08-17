@@ -3,7 +3,8 @@
 should make rep 4 mod 
 idk lol
  DemonsOfCalifornia, CaliforniaDemon
-
+hmmm
+...a jungle+ cyberpunk 
  also learn voice acting 
 
  maybe in this california people speak french (it is a bit like canada)
