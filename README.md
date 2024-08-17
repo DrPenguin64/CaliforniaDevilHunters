@@ -4,6 +4,8 @@ should make rep 4 mod
 idk lol
  DemonsOfCalifornia, CaliforniaDemon
 
+ also learn voice acting 
+
  maybe in this california people speak french (it is a bit like canada)
  or in a country with more interesting architecture?
 
