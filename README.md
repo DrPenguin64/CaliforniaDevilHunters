@@ -1,11 +1,5 @@
 # CaliforniaDevilHunters
- An action game and boohhgk.
-should make rep 4 mod 
-
-
-bb
-mhmnnjjgg
-idk lol me fhjh
+ An action game and book
  DemonsOfCalifornia, CaliforniaDemon
 hmmm
 ...a jungle+ cyberpunk 
