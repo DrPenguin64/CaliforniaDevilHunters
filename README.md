@@ -1,13 +1,7 @@
 # CaliforniaDevilHunters
  An action game and boohhgk.
 should make rep 4 mod 
-thdbghjvvh
-yhid is how 
 
-hrd
-th
-
-thid is itcggh
 
 bb
 mhmnnjjgg
