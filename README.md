@@ -18,7 +18,7 @@ hmmm
 
  The devils can take many forms, but they always have yellow eyes and do not blink.
 
- - taking inspiration from sheroes, bayo
+ - taking inspiration from sheroes, dfsf
 
  the demons usually have to possess a human in order to disguise themselves that way.
  maybe there is a classmate of a normal person who turns out to be a devil, who seems nice but yikes.
