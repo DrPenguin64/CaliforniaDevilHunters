@@ -10,7 +10,7 @@ hmmm
 
  ## Overview    m
  2 main campaigns: 1 where you play as the apprentice and the demon he has made  a contact with to protect in exchange for its servitude,
- the other in which you play as the devil hunters: 3 people, a devil (who works for gov in exchanged for life and their protection), an angel (designed as solider clone by gov), and a normal human
+ the other in which you play as the devil hunters: 3 people, a devil (who works for gov in exchanged for life and their protection), an angel (designed as   solider clone by gov), and a normal human
 
  For the boy, each level has 2 main acts, then a bossfight against the demon you are trying to fight. You kill them, and absorb the item that is the source of their power.
 
