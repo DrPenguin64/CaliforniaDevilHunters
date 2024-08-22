@@ -6,7 +6,7 @@ hmmm
  also learn voice acting 
 
  maybe in this california people speak french (it is a bit like canada)
- or in a country with more interesting architecture?
+ or in a country with more interesting architecture?asdff
 
  ## Overview
  2 main campaigns: 1 where you play as the apprentice and the demon he has made  a contact with to protect in exchange for its servitude,
