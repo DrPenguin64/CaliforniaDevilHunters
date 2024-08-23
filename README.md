@@ -5,7 +5,7 @@ hmmm
 ...a jungle+ cyberpunk
  also learn voice acting...
  what would be the best genre 
-
+easy ..
  maybe in this california people speak french (it is a bit like canada)
  or in a country with more interesting architecture?asdffmm
 
