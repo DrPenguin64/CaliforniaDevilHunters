@@ -3,7 +3,7 @@
  DemonsOfCalifornia, CaliforniaDemon
 hmmm
 ...a jungle+ cyberpunk 
- also learn voice acting 
+ also learn voice acting 2
 
  maybe in this california people speak french (it is a bit like canada)
  or in a country with more interesting architecture?asdffmm
