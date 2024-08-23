@@ -2,8 +2,9 @@
  An action game and book
  DemonsOfCalifornia, CaliforniaDemon
 hmmm
-...a jungle+ cyberpunk 34
- also learn voice acting 2
+...a jungle+ cyberpunk
+ also learn voice acting...
+ what would be the best genre 
 
  maybe in this california people speak french (it is a bit like canada)
  or in a country with more interesting architecture?asdffmm
