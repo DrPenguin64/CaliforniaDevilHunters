@@ -2,7 +2,7 @@
  An action game and book
  DemonsOfCalifornia, CaliforniaDemon
 hmmm   
-...a jungle+ cyberpunk
+...a jungle+ cyberpunk g
  also learn voice acting...
  what would be the best genre 
 easy ..music could be metal 
