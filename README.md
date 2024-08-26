@@ -11,7 +11,6 @@ easy ..music could be metal
 
 Maybelline incorporate 
 
-update
 
  ## Overview    m
  2 main campaigns: 1 where you play as the apprentice and the demon he has made  a contact with to protect in exchange for its servitude,
