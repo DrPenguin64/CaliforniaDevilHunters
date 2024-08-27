@@ -8,7 +8,6 @@ hmmm    6
 easy ..music could be metal 
  maybe in this california people  speak french (it is a bit like canada)
 
-
 they
  ## Overview    m
  2 main campaigns: 1 where you play as the apprentice and the demon he has made  a contact with to protect in exchange for its servitude,
